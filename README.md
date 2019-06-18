@@ -1,0 +1,1 @@
+# SemanaOmniStack7.0
